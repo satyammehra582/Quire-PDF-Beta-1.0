@@ -1,0 +1,1 @@
+# Quire-PDF-Beta-1.0
